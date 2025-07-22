@@ -1,6 +1,6 @@
              XFuLi导航
              
-永远地址发布：https://xdh.icu/
+永远地址发布：https://1xdaohang.xyz/
 
 发送任意邮件到  xfulidh@gmail.com ，  自动回复最新地址
 
